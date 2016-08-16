@@ -1,8 +1,10 @@
-# Heads By Froggy's Inc.
+# Heads 
 
-TEAM DETAILS
-Cunts that code: Froggy, Snivak
-Dicks that draw: Gokurox
-
-CONTACT
-snivak@gmail.com
+By Froggy's Inc. <br />
+<br />
+TEAM DETAILS <br />
+Cunts that code: Froggy, Snivak <br />
+Dicks that draw: Gokurox <br />
+<br />
+CONTACT <br />
+snivak@gmail.com <br />
