@@ -1,7 +1,5 @@
 # Heads 
 
-By Froggy's Inc. <br />
-<br />
 TEAM DETAILS <br />
 Cunts that code: Froggy, Snivak <br />
 Dicks that draw: Gokurox <br />
